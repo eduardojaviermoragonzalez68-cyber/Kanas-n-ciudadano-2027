@@ -13,6 +13,23 @@ Un proyecto ciudadano 2027-2030 donde **TÚ propones cómo mejorar Kanasín**. S
 
 **NO SOY CANDIDATO AÚN.** Solo ejerzo mi derecho ciudadano (Art. 35 Constitución).
 
+### 📲 MI PROPUESTA CIUDADANA
+
+**Hermano Kanasinense, si estás cansado de seguir en el olvido, viviendo las omisiones a todos nuestros derechos constitucionales, ven, sumémonos a este gran proyecto visionario y transformador para el futuro de nuestros hijos.**
+
+**Dejemos a nuestros hijos una de las culturas que ellos jamás creyeron tener:**
+
+**TALLERES DE AUTOSUFICIENCIA PERSONAL:**
+Desde aplicación de uñas gelish, francesas, pedicure, manicura, corte de cabellos, peinados mohicanos, trenzas africanas.
+
+Dejemos enseñanzas a nuestros hijos para que en un futuro ellos sepan también de ser profesionales, brindar servicios de humildad a nuestra sociedad que hoy demanda muchos servicios de atención en los emprendedores municipales.
+
+### 📞 ¿Te sumas?
+
+<a href="https://wa.me/529997646962?text=Hola%20Eduardo,%20quiero%20sumarme%20al%20proyecto%20Kanasin%20es%20Nuestra%20Casa"><img src="https://img.shields.io/badge/WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" /></a>
+
+**WhatsApp: 999 764 6962**
+
 ### 📜 Me respalda la ley
 *   **Art. 35 CPEUM:** Derecho a asociarme
 *   **Art. 75-76 Ley de Gobierno Municipal de Yucatán**
