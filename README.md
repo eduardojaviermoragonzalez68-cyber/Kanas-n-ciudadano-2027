@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="foto-perfil.jpg" width="200" style="border-radius:50%"/>
+<img src="IMG-20260807-WA0002.jpg" width="200" style="border-radius:50%"/>
 
 # 🏠 KANASÍN ES NUESTRA CASA
 
